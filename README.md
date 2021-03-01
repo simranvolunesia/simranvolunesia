@@ -4,6 +4,7 @@
 [Youtube](https://www.youtube.com/channel/UCJPZjYLPApIZokATpjj5HZg)
 [Github](https://github.com/simranenggprojects)
 [Email](simran17102004@gmail.com)
+[Medium] (https://medium.com/@simran17102004)
 
 ### Hi there 👋
 
