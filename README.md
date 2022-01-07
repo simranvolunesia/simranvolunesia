@@ -1,4 +1,4 @@
-# Simran Kalra
+# Simran 
 
 [LinkedIn](https://www.linkedin.com/in/simran-kalra-4423161b6/)
 [Youtube](https://www.youtube.com/channel/UCJPZjYLPApIZokATpjj5HZg)
