@@ -4,6 +4,7 @@
 [Youtube](https://www.youtube.com/channel/UCJPZjYLPApIZokATpjj5HZg)
 [Github](https://github.com/simranenggprojects)
 [Medium](https://medium.com/@simran17102004)
+[Kaggle](https://www.kaggle.com/simranvolunesia)
 
 ### Hi there 👋
 
